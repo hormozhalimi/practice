@@ -1,1 +1,31 @@
 # practice
+i am a teakwandoschimpion but not very well.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
